@@ -1,3 +1,21 @@
+Emotional Forest Privacy Policy
+Last updated: April 9, 2024
+TungHuongVP is committed to protecting user privacy. This Privacy Policy describes how we collect, use, and share information when you use Emotional Forest.
+1. Information We Collect
+Emotional Forest does not collect any personal information from its users.
+2. Use of Information
+Because Emotional Forest does not collect personal information, we do not use or share any personal information.
+3. Information Sharing
+Emotional Forest does not share any personal information with third parties.
+4. Data Security
+We take the security of your information seriously. Emotional Forest takes reasonable security measures to protect your information and prevent unauthorized access, use or disclosure.
+5. Your Rights
+Because Emotional Forest does not collect personal information, no personal information can be viewed or requested to be deleted.
+6. Changes to Privacy Policy
+We reserve the right to update our privacy policy from time to time. Any changes will be posted on this page with "Final Update" updated accordingly.
+7. Contact
+If you have any questions about this Privacy Policy, please contact us at FanVN84@gmail.com.
+                                                                   ---
 Chính Sách Quyền Riêng Tư của Emotional Forest
 Cuối cùng cập nhật: 09/4/2024
 TungHuongVP cam kết bảo vệ quyền riêng tư của người dùng. Chính sách Quyền Riêng Tư này mô tả cách chúng tôi thu thập, sử dụng, và chia sẻ thông tin khi bạn sử dụng Emotional Forest.
